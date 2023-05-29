@@ -1,4 +1,4 @@
-Hi 👋 My name is Muhammed Dilshan M
+I'm  Muhammed Dilshan M
 ===================================
 
 Full stack developer
